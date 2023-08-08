@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GhazanfarIrfan24
 - 👀 I’m interested in Product Management, Product researh, UxUi design. 
 - 🌱 I’m currently learning Product management and UxUi projects.
-- 💞️ I’m looking to collaborate on ....
+- 💞️ I’m looking to collaborate on @prernasandooja and searching....
 - 📫 How to reach me at ghazanfar.irfan92@gmail.com
 
 <!---
